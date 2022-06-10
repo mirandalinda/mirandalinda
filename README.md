@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mirandalinda
+- 👀 Meu email de contato é  miranda.luiza@escola.pr.gov.br
+-   Eu estou interressada  em arrumar um emprego
